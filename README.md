@@ -11,6 +11,4 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with WEB3
 - 💬 Ask me about EVERY WEB3 GAMEFI MESSGE
 - 📫 How to reach me: YOU CAN FOLLOW ME
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
